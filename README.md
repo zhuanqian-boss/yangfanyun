@@ -8,6 +8,10 @@
 
 备用地址2：[yangfanhome.com](https://yangfanhome.com/register?code=o60AZIA3)
 
+备用地址3：[yfn42.net](https://yawtt.net/register?code=o60AZIA3)
+
+备用地址4：[yangfanyy.net](https://yaftt.net/register?code=o60AZIA3)
+
 ---
 
 ## 平台简介
